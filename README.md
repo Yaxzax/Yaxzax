@@ -38,6 +38,8 @@ Trabajo ayudando a empresas y profesionales en ciberseguridad y privacidad y ada
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=flat&logo=linkedin&logoColor=white)](https://linkedin.com/in/pelayo-castellano-ponce-11095359)
 
+email : pelayoalgeciras@protonmail.com
+Tfo:656967426
 ---
 
 > *"La transformación digital no es tecnología, es cultura."*
