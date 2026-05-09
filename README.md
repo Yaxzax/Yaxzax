@@ -2,7 +2,7 @@
 
 ### Consultor de Transformación Digital · Especialista en IA · Formador
 
-Trabajo ayudando a empresas y profesionales del Campo de Gibraltar y Andalucía a adaptarse a la era digital, implementar inteligencia artificial en sus procesos y desarrollar las competencias digitales de sus equipos.
+Trabajo ayudando a empresas y profesionales en ciberseguridad y privacidad y adaptarse a la era digital, implementar inteligencia artificial en sus procesos y desarrollar las competencias digitales de sus equipos para seguridad a todos los niveles.
 
 ---
 
